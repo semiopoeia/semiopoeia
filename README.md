@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects developing on statistical methodology and applied research as well
 - 📫 How to reach me, contact through here
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: 
+- ⚡ Fun fact: That's my (currently youngest) chickie, little lady grey
 
 <!---
 semiopoeia/semiopoeia is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
