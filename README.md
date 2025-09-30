@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects developing on statistical methodology and applied research as well
 - 📫 How to reach me, contact through here
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: That's the baby of our flock, little lady grey
+- ⚡ Fun fact: That's the littlest of our flock, lady jane grey
 <!---
 semiopoeia/semiopoeia is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
